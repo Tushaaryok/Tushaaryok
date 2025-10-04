@@ -27,7 +27,8 @@
 - LinkedIn: [Tushar Kothariya](https://www.linkedin.com/in/tushar-kothariya-490b5a324/)  
 - Instagram: [@tushaaryok](https://instagram.com/tushaaryok)  
 - Discord: [tushaaryok](https://discord.gg/tushaaryok)  
-- GitHub: [@Tushaaryok](https://github.com/Tushaaryok)  
+- GitHub: [@Tushaaryok](https://github.com/Tushaaryok)
+- Youtube: [@Tushaaryok](https://www.youtube.com/@tushaaryokk) 
 
 ---
 
